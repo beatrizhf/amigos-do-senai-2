@@ -1,1 +1,3 @@
 # amigos-do-senai-2
+
+Briana, uma jovem camponesa da Escócia medieval cresceu se escondedndo de todos, sendo protegida por sua mãe Marnie. Desde muito nova ela demonstrava ter poderes mentais, podendo mover objetos, além de suas percepções serem claramente apuradas. Sua mãe conta histórias que, por sua vez, ouviu de seu avô, sobre uma galáxia muito, muito distante...
