@@ -1,3 +1,4 @@
 # amigos-do-senai-2
 
 Briana, uma jovem camponesa da Escócia medieval cresceu se escondedndo de todos, sendo protegida por sua mãe Marnie. Desde muito nova ela demonstrava ter poderes mentais, podendo mover objetos, além de suas percepções serem claramente apuradas. Sua mãe conta histórias que, por sua vez, ouviu de seu avô, sobre uma galáxia muito, muito distante...
+Ela morava numa cidadezinha que o vento doía até os ossos, existia uma névoa constante, a paisagem eram montanhas encobertas, além de ovelhas e cabras pelo pasto. Briana era uma moça que vivia em um mal humor constante, a coitada não tinha paz, odiava o frio e queria ver sol. Seu maior desejo era usar seus poderes mentais para aprender o poder de teletransporte e ir embora de vez do frio e das ovelhas barulhentas. Mas ela ainda não sabia um limitação do seu poder, só ver o que era bom. Então ela decidiu que iria embora para um vilareijo em outro continente chamado Blumenhell, para uma cidade ensolarada 
